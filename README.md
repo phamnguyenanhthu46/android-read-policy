@@ -1,5 +1,5 @@
 # android-read-policy
-Privacy policy
+# Privacy policy
 
 General
 
