@@ -10,8 +10,6 @@ Privacy Policy ("Policy") describes how information obtained from users is colle
 By using 
 Football of the world 2018 - Russia, you agree that your personal information will be handled as described in this Policy.
 
-Information being collected
-
 
 Football of the world 2018 - Russia does not collect any personal identifiable information.
 
